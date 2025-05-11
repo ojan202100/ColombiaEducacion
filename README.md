@@ -8,7 +8,7 @@ Omar Javier Aponte Navarrete
 
 
 Enlaces FIGMA 
-Desarrollo
+Desarrollo y Diseño 
 
 https://www.figma.com/design/juLvohpl6D01aoBzRKOl73/Colombia-con-Educaci%C3%B3n?node-id=0-1&t=8foTa4qmJyHTCREG-1
 
